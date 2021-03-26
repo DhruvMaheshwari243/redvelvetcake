@@ -1,0 +1,1 @@
+A red velvet cake is a cake where you have a red filling and 2 or 3 sponge type inbetween
